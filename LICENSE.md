@@ -1,4 +1,4 @@
-# 
+# professional bot de trading de FTX addons es el mejor bot de trading de FTX addons con baja frecuencia y take-profit. Seguro, confiable y optimizado para estrategias de trading en
 
 
 
